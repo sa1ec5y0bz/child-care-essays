@@ -349,21 +349,21 @@ A：美国法律禁止胚胎跨境运输，建议保存在INCINTA，后续赴美
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/pzngwecbnd.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/pregnancy-care-hub/blob/main/20260910xfbk/jupdssbmcq.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/zkpercyyto.md)
-- [相关笔记](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/czsgnxylqm.md)
-- [相关笔记](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/iwxomcdoav.md)
+- [美国第三代试管婴儿，成功率到底有多高对比国内真相曝光](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/pzngwecbnd.md)
+- [赴美第三代试管婴儿避坑指南：5个关键环节千万别踩雷](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/nfpaehzait.md)
+- [美国第三代试管婴儿成功率破80%权威数据&真实案例全解读](https://github.com/sa1ec5y0bz/pregnancy-care-hub/blob/main/20260910xfbk/jupdssbmcq.md)
+- [去美国做第三代试管婴儿专家带你避开8大坑，全程手把手攻略](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/zkpercyyto.md)
+- [美国第三代试管婴儿全流程手册：从签证到好孕，一站式指南](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/czsgnxylqm.md)
+- [揭秘美国第三代试管婴儿：高龄夫妻实现生育梦想的5大核心秘诀](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/iwxomcdoav.md)
 
 ## 推荐站点
 
-- [相关资讯](https://www.danqiushen.com/134.html)
-- [详情点击](https://www.danqiushen.com/132.html)
-- [相关资讯](https://www.danqiushen.com/150.html)
-- [更多内容](https://www.danqiushen.com/152.html)
-- [更多内容](https://www.wuzhenzhi.cn/37.html)
-- [点击查看](https://www.wuzhenzhi.cn/110.html)
-- [更多内容](https://www.wuzhenzhi.cn/89.html)
+- [国内、泰国、美国第三代试管婴儿怎么选？三代试管目的地全面对比](https://www.wuzhenzhi.cn/111.html)
+- [第三代试管包生儿子有影响吗？解析PGT技术与性别选择真相](https://www.wuzhenzhi.cn/112.html)
+- [临沂能做三代试管吗？最新消息与申请条件全面解读](https://www.wuzhenzhi.cn/113.html)
+- [囊胚性别鉴定要多久出结果？PGT检测流程与时间周期全解析](https://www.wuzhenzhi.cn/114.html)
+- [第二代试管性别比例是多少？ICSI婴儿男女比例科学解读](https://www.wuzhenzhi.cn/115.html)
+- [三代试管龙凤胎好吗？PGT技术能实现龙凤胎吗一文说清](https://www.wuzhenzhi.cn/116.html)
+- [4BC囊胚好还是八细胞一级冻胚好？冻胚与囊胚移植对比解析](https://www.wuzhenzhi.cn/117.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
