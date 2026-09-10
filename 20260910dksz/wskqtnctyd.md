@@ -16,21 +16,21 @@
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/wjodtuqupw.md)
-- [相关笔记](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/xhemefpcxw.md)
-- [相关笔记](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/uzdcztahhz.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/jfosrfcrps.md)
-- [相关笔记](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/wcmcpmfrua.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/ygxdhkrrzs.md)
-- [相关笔记](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/luutifhrfq.md)
+- [美国第三代试管婴儿必看：全流程避坑指南+高成功率秘笈](https://github.com/sa1ec5y0bz/parenting-daily-tips/blob/main/20260910emah/wjodtuqupw.md)
+- [美国第三代试管婴儿避坑指南：成功收获健康宝宝](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/xhemefpcxw.md)
+- [美国第三代试管婴儿攻略：成功率、费用、避坑秘籍一站式全解](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/uzdcztahhz.md)
+- [去美国做第三代试管前，你必须知道的7件事：避坑提效全攻略](https://github.com/sa1ec5y0bz/mommy-baby-notes/blob/main/20260910wyda/jfosrfcrps.md)
+- [美国第三代试管婴儿5步搞定：流程、费用与成功率全解析](https://github.com/uo8lrun64a/child-care-essays/blob/main/20260910hvpe/wcmcpmfrua.md)
+- [赴美做第三代试管婴儿全流程攻略：成功率、费用、医院怎么选](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/ygxdhkrrzs.md)
+- [去美国做第三代试管婴儿超全手把手攻略让你避开5大雷区](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/luutifhrfq.md)
 
 ## 推荐站点
 
-- [延伸阅读](https://www.danqiushen.com/24.html)
-- [详情点击](https://www.danqiushen.com/121.html)
-- [详情点击](https://www.danqiushen.com/89.html)
-- [查看详情](https://www.wuzhenzhi.cn/16.html)
-- [相关资讯](https://www.wuzhenzhi.cn/34.html)
-- [延伸阅读](https://www.wuzhenzhi.cn/64.html)
+- [吉林省人民医院试管婴儿成功率高吗？长春吉大二院试管成功率解读](https://www.wuzhenzhi.cn/105.html)
+- [国内试管婴儿案例最新消息与进展：政策、技术与真实情况解读](https://www.wuzhenzhi.cn/106.html)
+- [移植后要注意些什么才能提高成功率呢？视频讲解全方位指南](https://www.wuzhenzhi.cn/107.html)
+- [长沙哪里可以做第三代试管婴儿？PGT技术适应症与非医疗性别选择的合法性说明](https://www.wuzhenzhi.cn/108.html)
+- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
+- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
