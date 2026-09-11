@@ -26,11 +26,17 @@
 
 ## 推荐站点
 
-- [吉林省人民医院试管婴儿成功率高吗？长春吉大二院试管成功率解读](https://www.wuzhenzhi.cn/105.html)
-- [国内试管婴儿案例最新消息与进展：政策、技术与真实情况解读](https://www.wuzhenzhi.cn/106.html)
-- [移植后要注意些什么才能提高成功率呢？视频讲解全方位指南](https://www.wuzhenzhi.cn/107.html)
-- [长沙哪里可以做第三代试管婴儿？PGT技术适应症与非医疗性别选择的合法性说明](https://www.wuzhenzhi.cn/108.html)
-- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
-- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
+- [['https://www.phetpalace.com/354.html', '子宫内膜薄中药可不可以调理，子宫内膜薄中医来帮忙！']](https://www.phetpalace.com/354.html)
+- [['https://www.dyokx.com/hangzhoudaihuaishiguan/358.html', '不结婚，没结婚证能做试管婴儿吗？']](https://www.dyokx.com/hangzhoudaihuaishiguan/358.html)
+- [['https://www.cd-hssf.com/202991812518.html', '山东三代试管婴儿生育费用介绍！附医院名单推荐！']](https://www.cd-hssf.com/202991812518.html)
+- [['https://www.sandwnot.com/121340940563.html', '辽宁做试管婴儿费用大高不高？辽宁省做试管婴儿的医院排名？']](https://www.sandwnot.com/121340940563.html)
+- [['https://www.hghbjm.com/209.html', '代怀试管-南昌试管私立机构Top10排行']](https://www.hghbjm.com/209.html)
+- [['https://www.esc45.com/102.html', '供卵价钱表-沈阳哪家医院做三代试管婴儿的技术最好，沈阳三代试管口碑颐源居推荐附试管详细流程']](https://www.esc45.com/102.html)
+- [['https://www.eduency.com/125805314146.html', '深圳助孕试管机构,2026深圳未婚做试管机构排名最新汇总,深圳试管婴儿一次能成功吗！']](https://www.eduency.com/125805314146.html)
+- [['https://www.3899234.com/20250927-147.html', '代孕套餐介绍&彩超影不影响备孕要多久，做彩超不影响备孕吧']](https://www.3899234.com/20250927-147.html)
+- [['https://www.xnnpbhdz.cn/37724948918956.html', '澳门做私立供卵可靠吗第三代在哪里做：澳门私立供卵可靠吗成功率高吗']](https://www.xnnpbhdz.cn/37724948918956.html)
+- [['https://www.sasksjob.com/521632110189.html', '杭州试管助孕费用解析：19万是否足够？']](https://www.sasksjob.com/521632110189.html)
+- [['https://www.cndcxc.com/daiyunmamai/20251021/16998.html', '助孕公司机构，月经推迟4天，是否能通过测试确认怀孕？']](https://www.cndcxc.com/daiyunmamai/20251021/16998.html)
+- [['https://www.mimi567.com/110.html', '试管捐卵流程:产后肚子会小多少（流产后饮食）']](https://www.mimi567.com/110.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
