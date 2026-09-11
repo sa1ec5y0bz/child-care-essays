@@ -358,12 +358,20 @@ A：美国法律禁止胚胎跨境运输，建议保存在INCINTA，后续赴美
 
 ## 推荐站点
 
-- [国内、泰国、美国第三代试管婴儿怎么选？三代试管目的地全面对比](https://www.wuzhenzhi.cn/111.html)
-- [第三代试管包生儿子有影响吗？解析PGT技术与性别选择真相](https://www.wuzhenzhi.cn/112.html)
-- [临沂能做三代试管吗？最新消息与申请条件全面解读](https://www.wuzhenzhi.cn/113.html)
-- [囊胚性别鉴定要多久出结果？PGT检测流程与时间周期全解析](https://www.wuzhenzhi.cn/114.html)
-- [第二代试管性别比例是多少？ICSI婴儿男女比例科学解读](https://www.wuzhenzhi.cn/115.html)
-- [三代试管龙凤胎好吗？PGT技术能实现龙凤胎吗一文说清](https://www.wuzhenzhi.cn/116.html)
-- [4BC囊胚好还是八细胞一级冻胚好？冻胚与囊胚移植对比解析](https://www.wuzhenzhi.cn/117.html)
+- [['https://www.chengyanghg.cn/335.html', '厦门2026试管助孕生子机构成功率排名top3强推！如何选择合适的供卵试管机构']](https://www.chengyanghg.cn/335.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguanzhongxin/20251014/6045.html', '助孕生殖公司-受精卵着床有什么感觉,受精卵着床后能同房吗']](https://www.btwtjx.cn/wuhangongluanshiguanzhongxin/20251014/6045.html)
+- [['https://www.sandwnot.com/114430629041.html', '2026辽宁三代试管婴儿助孕医院 费用 成功率的详细介绍']](https://www.sandwnot.com/114430629041.html)
+- [['https://www.hs52.cc/sandaigongluandaihuai/145.html', '4aa囊胚相当于怀孕多久？试管移植囊胚相当于怀孕多少天？']](https://www.hs52.cc/sandaigongluandaihuai/145.html)
+- [['https://www.hg00fj88.com/2150.html', '高龄女性促排要注意什么']](https://www.hg00fj88.com/2150.html)
+- [['https://www.ewdboe.cn/404604028371.html', '备孕需要补充哪些营养素']](https://www.ewdboe.cn/404604028371.html)
+- [['https://www.jszgyh.com/306424070040.html', None]](https://www.jszgyh.com/306424070040.html)
+- [['https://www.zrbbavaq.cn/12838467106166.html', '试管供卵多少钱促排在什么期？试管供卵多少钱促排最长时间的多久？']](https://www.zrbbavaq.cn/12838467106166.html)
+- [['https://www.sdwmtgccl.cn/54909498956172.html', '鞍状子宫能做试管助孕吗？代生代怀方案及治疗费用解析']](https://www.sdwmtgccl.cn/54909498956172.html)
+- [['https://www.bjwdzxkj.cn/2743754544869.html', '珠海办三代试管婴儿最具实力医院排名更新！单周期助孕费用！,哪里有试管助孕']](https://www.bjwdzxkj.cn/2743754544869.html)
+- [['https://www.hghbjm.com/252.html', '做试管内膜薄移植成功率高吗？子宫内膜薄试管移植一定不能成功吗？']](https://www.hghbjm.com/252.html)
+- [['https://www.anyhdlyb.cn/2901672279841.html', '供卵试管代生机构,供卵找天子代怀,试管三代一般多少钱一次 试管三代费用多少成功率高吗']](https://www.anyhdlyb.cn/2901672279841.html)
+- [['https://www.cecigou.cn/daihuaiyunfuwu/20250928/15028.html', '宫腔粘连可以做试管不_宫腔粘连能不能做试管']](https://www.cecigou.cn/daihuaiyunfuwu/20250928/15028.html)
+- [['https://www.xmxinyhwzhs.cn/22452268548014.html', '甘肃试管供卵代生的医院促排没效果(甘肃试管供卵代生的医院促排没感觉正常吗)']](https://www.xmxinyhwzhs.cn/22452268548014.html)
+- [['https://www.cmanrxrr.cn/3416270976875.html', '三代代生报价促排后我的月经还没有来！清单来了！']](https://www.cmanrxrr.cn/3416270976875.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
